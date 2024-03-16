@@ -2,12 +2,13 @@
 
 ## [GET the HOMESCAPES CHEATS HERE.](https://linktr.ee/WinCheat)
 
-[[homescapes OIG2dddddd](https://github.com/kim-homescapes/Hacking-Your-Way-to-Success-in-Homescapes/assets/163552478/bb01f0a9-e904-4504-8ea2-698f508e49b5)](https://linktr.ee/WinCheat)
+[![homescapes OIG2dddddd](https://github.com/kim-homescapes/Hacking-Your-Way-to-Success-in-Homescapes/assets/163552478/bb01f0a9-e904-4504-8ea2-698f508e49b5)](https://linktr.ee/WinCheat)
 
 ## [🚀 Ready to elevate your Homescapes game? Unlock unlimited coins, stars, and moves with our exclusive cheats! 🌟 Experience the mansion makeover like never before. Get started now! 🏠 CLICK HERE! 🎮](https://linktr.ee/WinCheat)
 
 Welcome, fellow Homescaper! If you have ever determined yourself stuck on a in particular hard degree or wished for more cash and stars to spruce up Austin's mansion, then you definitely're inside the proper area. In this manual, we're going to delve deep into the arena of **Homescapes hack**, uncovering its nuances, potentials, and ethical issues.
 
+[![Homescapes 22rOIG1 KYBT](https://github.com/kim-homescapes/Hacking-Your-Way-to-Success-in-Homescapes/assets/163552478/b7396a0e-d66b-4d16-a64f-185ccbec76af)](https://linktr.ee/WinCheat)
 
 
 ### Overview of Homescapes
